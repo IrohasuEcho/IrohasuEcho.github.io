@@ -6,6 +6,9 @@
 
 ※「学校シリーズ」は管理者が勝手に「学校で役に立つやろ！」と思ってるやつです。
 
+ʙʟᴏᴄᴋ
+https://turbowarp.org/484266612/fullscreen
+
 Dot Go!
 https://turbowarp.org/355164051/fullscreen
 
