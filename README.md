@@ -13,7 +13,7 @@ Dot Go!
 https://turbowarp.org/355164051/fullscreen
 
 TIMER SYSTEM ← 学校シリーズ
-https://turbowarp.org/466708205/fullscreen
+https://irohasuecho.github.io/panana
 
 メモ帳 ← 学校シリーズ
 https://turbowarp.org/467550936/fullscreen
