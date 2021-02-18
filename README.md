@@ -6,6 +6,8 @@
 
 ※「学校シリーズ」は管理者が勝手に「学校で役に立つやろ！」と思ってるやつです。
 
+新作出ました！https://turbowarp.org/488894246/fullscreen
+
 ʙʟᴏᴄᴋ
 https://turbowarp.org/484266612/fullscreen
 
